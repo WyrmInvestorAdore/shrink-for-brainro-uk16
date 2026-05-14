@@ -1,4 +1,4 @@
-#  
+#  Experience easter tap simulator like never before with easter tap simulator advanced Script, the #1 Script. Includes no cooldown and infinite
 
 
 
